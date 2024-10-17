@@ -1,0 +1,1 @@
+# Crie-um-Prompts-Albert-Einstein-tirando-habilita-o.-O-ano-2024-e-seu-instrutor-o-Henrique-Arantes.-
